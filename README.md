@@ -1,2 +1,0 @@
-# li
-Sak Joss e
